@@ -1,2 +1,1 @@
-♡ https://rentry.co/heartgoldpkmn  
-super lazy rentry
+https://www.youtube.com/watch?v=ESAHQRm8POA
