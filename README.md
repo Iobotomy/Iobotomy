@@ -1,2 +1,2 @@
 
-⠀⠀⠀⠀⠀⠀HI JUST GO TO MY [REN](https://rentry.co/dehumanizing)TRY PLEASE THANKS
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀hi go to [ren](https://rentry.co/dehumanizing)try for info :-3
