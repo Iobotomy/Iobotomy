@@ -1,3 +1,3 @@
 hi :-) im joel or dominus/dominic  
-https://joel.123guestbook.com/ leave me a message! <3  
-(not mobile friendly... srry :-C )
+https://joel.123guestbook.com/ sing my guestbook :3 
+^ NOTTT mobile friendly SRRy..!!
