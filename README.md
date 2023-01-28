@@ -1,3 +1,4 @@
-hi :-) im joel or dominus/dominic  
-https://joel.123guestbook.com/ sign my guestbook :3   
-^ NOTTT mobile friendly SRRy..!!
+**joel** or . . . **dom**inus/inic  
+sign my ~~petition~~ [guestbook](https://joel.123guestbook.com/) ☆  
+**autistic** + adhd  mexican  
+eng/**esp**/pyc/sve **ok**!  
