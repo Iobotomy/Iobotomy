@@ -1,4 +1,4 @@
  [send me music](https://joel.123guestbook.com/) :-)  
-im so ver normal about apostle...  
-![](https://cdn.discordapp.com/attachments/785477095903461387/1131221452553723994/image.png)  
-![](https://cdn.discordapp.com/attachments/785477095903461387/1131222351254667326/NWBVEBVEBHNWEBNW.jpg)
+im so very normal about apostle...  
+
+![WTO938745489302](https://github.com/ApostIe/ApostIe/assets/116941296/e0b2e92e-9e21-46a5-8b47-9c565baa9673)
