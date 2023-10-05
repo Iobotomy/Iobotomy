@@ -1,5 +1,5 @@
  [send me music](https://joel.123guestbook.com/)  
- [some more information on me :-)](https://sentrytwo.com/apostle.)
+ [some more information on me :-)](https://rentry.co/Apostle-)
 
 i have a [boyfriend](https://github.com/DELUXEB0MB) i love a lot  
 
