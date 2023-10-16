@@ -11,4 +11,3 @@ i have a [boyfriend](https://github.com/DELUXEB0MB) i love a lot
 ![0b86c6a5](https://github.com/ApostIe/ApostIe/assets/116941296/4090baf4-1026-4d50-a4c2-a4b80eab94c1)
 ![tumblr_95c6ffb71282df33a2e61cf9d81d558f_d2623953_100](https://github.com/ApostIe/ApostIe/assets/116941296/5efce143-b3fc-4889-8815-003a1b024ab1)
 ![efg](https://github.com/ApostIe/ApostIe/assets/116941296/3a594cfe-b5cf-4aed-9a99-52c22fd72598)
-![83902](https://github.com/ApostIe/ApostIe/assets/116941296/37c3fbf4-3397-4c72-823d-f70b87c5f0e3)
