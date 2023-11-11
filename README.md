@@ -1,3 +1,2 @@
 
-lethal annoyance #2  
-i am all that is [unholy](https://rentry.co/Apostle-)
+[me](https://rentry.co/Apostle-)
