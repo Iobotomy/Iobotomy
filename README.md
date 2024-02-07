@@ -5,4 +5,4 @@
 <p align="center">
 <b>joel</b> ⠀⠀⠀ he/she⠀⠀ ⠀autistic  
 
-   ⠀⠀⠀  ⠀⠀⠀  ⠀⠀⠀  ⠀⠀⠀  ⠀⠀⠀  ⠀⠀⠀  ⠀⠀⠀  ⠀⠀⠀  ⠀⠀⠀  ⠀⠀⠀  ⠀⠀⠀  ⠀[read ⠀more ⠀about ⠀me ⠀here](https://rentry.co/BILLYLOOMlS)
+   ⠀⠀⠀  ⠀⠀⠀  ⠀⠀⠀  ⠀⠀⠀  ⠀⠀⠀  ⠀⠀⠀  ⠀⠀⠀  ⠀⠀⠀  ⠀⠀⠀  ⠀⠀⠀  ⠀⠀⠀  [read ⠀more ⠀about ⠀me ⠀here](https://rentry.co/BILLYLOOMlS)
