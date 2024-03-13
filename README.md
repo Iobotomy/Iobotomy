@@ -1,7 +1,4 @@
 
  joel/subzero  
- [view my rentry boy](https://rentry.co/BILLYLOOMlS)  
-[strawpage thats not even done:3](https://joel.straw.page/)  
-
-  HUGE NOOB SAIBOT FAN  
-![newbie](https://github.com/Iobotomy/Iobotomy/assets/116941296/29180d9b-df6d-4403-bf95-31ebec6177c5)
+ [rentry](https://rentry.co/BILLYLOOMlS) ♡ [(unfinished) strawpage](https://joel.straw.page/)
+  
