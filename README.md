@@ -1,8 +1,3 @@
 <p align="center">
- <img width="88" height="31" src= https://i.imgur.com/TcijOKG.gif>
+  <img width="600" height="338" src="https://i.imgur.com/fNUd9tr.gif">
 </p>
- 
-<p align="center">
- https://arab.org/
-</p>
-  
