@@ -3,9 +3,9 @@
 </p>
 
 <p align="center">
-joel / subzero  
+  joel / subzero
   </p>
   <p align="center">
-      <link[rentry](https://rentry.co/BILLYLOOMlS)>
-  </p>
+    <a href="https://rentry.co/BILLYLOOMlS">rentry</a> ♡ <a href="https://joel.straw.page/">strawpage</a> ♡ <a href="https://joel.123guestbook.com/">guestbook</a> 
+
 
